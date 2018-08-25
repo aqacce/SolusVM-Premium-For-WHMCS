@@ -11,4 +11,4 @@
 
 捐助：
 
-![Image](https://ws3.sinaimg.cn/large/006tNc79gy1fooesn2qfrj30go0p0t9k.jpg)
+![Image]
